@@ -1,2 +1,2 @@
-# j4yd3e.tech
+# eternalrisen.tech
 My Personal Website
